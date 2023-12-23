@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Azzizullox
 - 👀 I’m interested in English, IT
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning English, It
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me need to sand sms to azizulloxolimov@gmail.com
   
